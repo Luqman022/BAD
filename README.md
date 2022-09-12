@@ -1,0 +1,2 @@
+# BAD
+Hello frinds
